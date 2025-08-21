@@ -1,1 +1,3 @@
 # PreciselyPredictingTheFutureComesFromHavingGoodTasteWhichComesFromHavingTastefulExperiencesNotTrash
+
+what does white trash like jason moore know about the future, absolutely nothing
